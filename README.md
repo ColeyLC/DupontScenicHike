@@ -1,4 +1,4 @@
-## [Link to map](index.html)
+## [Link to map](https://coleylc.github.io/DupontScenicHike/)
 
 ### 4 Waterfalls and a 200 year old cemetery; A scenic hike for all ages in Dupont State forest
 
